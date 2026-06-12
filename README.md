@@ -1,1 +1,0 @@
-# Straight-line-gps-old-iPad-mini-support
